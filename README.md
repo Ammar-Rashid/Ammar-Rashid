@@ -16,4 +16,4 @@ I am a passionate and dedicated Software Engineer with a solid foundation in sof
 
 ### 📫 How to Reach Me
 - **Email:** [alyahyaai36@gmail.com](mailto:alyahyaai36@gmail.com)
-- **LinkedIn:** [Your LinkedIn Profile](#)
+- **LinkedIn:** [Ammar AL YAHYAAI](www.linkedin.com/in/ammar-al-yahyaai-3620921ab)
